@@ -38,7 +38,7 @@
 
 ## 📬 Contact  
 - 📧 Email: sllyviperhq@gmail.com  
-- 💼 LinkedIn: [Your LinkedIn]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/amna-ilyas-52b903290/))  
+- 💼 LinkedIn:(https://www.linkedin.com/in/amna-ilyas-52b903290/)  
 
 ---
 ⭐️ From Amna Ilyas
